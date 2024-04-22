@@ -1,2 +1,2 @@
-# Projects
+# About me
 Projects
